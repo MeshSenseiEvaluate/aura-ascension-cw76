@@ -1,4 +1,4 @@
-# 
+# aura ascension Script smart is the best aura ascension Script, featuring auto-upgrade and auto-sell. Safe and powerful for all your needs.
 
 
 
